@@ -1,4 +1,4 @@
-# Recyclopedia - Manage Waste, Manage Sustainable Futures
+# Recyclopedia - _Manage Waste, Manage Sustainable Futures_
 
 Bangkit 2024 Product-based Capstone
 
