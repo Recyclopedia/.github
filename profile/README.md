@@ -11,7 +11,7 @@ C241-PS140
 - Nur Aidina (Business - Business/Commerce/Ideation)
 
 
-<p align="center"><img align="center" src="[https://raw.githubusercontent.com/Hidup-Sehat/.github/main/profile/Scene%201.png](https://github.com/Recyclopedia/.github/blob/41bbbee6c892a535b0caf940c3dc9f9163ce211f/profile/Nude%20Neutral%20Aesthetic%20Minimalist%20Skincare%20Studio%20Phone%20Mockup%20Instagram%20Post%20(Presentation).png)" /></p>
+<p align="center"><img align="center" src="https://raw.githubusercontent.com/Recyclopedia/.github/main/profile/Nude%20Neutral%20Aesthetic%20Minimalist%20Skincare%20Studio%20Phone%20Mockup%20Instagram%20Post%20(Presentation).png" /></p>
 
 
 **Members**:
